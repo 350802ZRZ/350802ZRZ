@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Ruizhe Zhu, call me Richard if you like!
+- 👀 I’m interested in making coffee, A BARISTA!!! If you are also interested in making coffee or learning, please let me know
+- 🌱 I’m currently learning Computer Science at Purdue University
+- 💞️ I’m looking to collaborate on (who knows)
+- 📫 How to reach me (Instagram <Yirgachefffeeeee>, phone number 765-684-3830, please do not call me for nothing just making fun)
